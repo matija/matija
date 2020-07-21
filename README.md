@@ -2,8 +2,8 @@
 
 ## 🏃 🚴 👨‍💻
 
-https://matija.eu
+[matija.eu](https://matija.eu)
 
-https://keybase.io/matija
+[keybase](https://keybase.io/matija)
 
-https://www.linkedin.com/in/matija-munjakovic/
+[linkedin](https://www.linkedin.com/in/matija-munjakovic/)
